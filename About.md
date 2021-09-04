@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @salahboudrar
+- 👀 born on December 11, 2000
+- 🌱 in Algiers, Algeria
+- 💞️ is an editor and producer
+- 📫 known for Meteor Moon (2020) and Wild Blue (2013)
